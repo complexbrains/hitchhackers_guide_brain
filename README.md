@@ -3,9 +3,9 @@
 A place to find your way around the multiverse of resources and methods that have almost, but not quite, entirely everything to do about the brain.
 
 
-[_So whenever life gets you down, Mrs. Brown
+[_So whenever life gets you down, Mrs. Brown_](https://www.youtube.com/watch?v=dvwH8Qij0JY)
 
-And things seem hard or tough_](https://www.youtube.com/watch?v=dvwH8Qij0JY)
+[_And things seem hard or tough_](https://www.youtube.com/watch?v=dvwH8Qij0JY)
 
 _Just remember..._
 
