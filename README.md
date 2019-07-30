@@ -4,7 +4,9 @@ A place to find your way around the multiverse of resources and methods that hav
 
 
 [_So whenever life gets you down, Mrs. Brown
+
 And things seem hard or tough_](https://www.youtube.com/watch?v=dvwH8Qij0JY)
+
 _Just remember..._
 
 [![DON'T PANIC](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6b/Don%27t_Panic.svg/1280px-Don%27t_Panic.svg.png)](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6b/Don%27t_Panic.svg/1280px-Don%27t_Panic.svg.png)
