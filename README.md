@@ -1,3 +1,6 @@
+
+<a href="https://mattermost.brainhack.org/brainhack/channels/hitchhackers-guide"><img src="http://www.mattermost.org/wp-content/uploads/2016/03/logoHorizontal.png" width=100px /> Join our channel </a>
+
 # A hitchhacker's guide to the brain
 
 A place to find your way around the multiverse of resources and methods that have almost, but not quite, entirely everything to do about the brain.
